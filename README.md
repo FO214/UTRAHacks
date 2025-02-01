@@ -1,3 +1,3 @@
 # UTRAHacks
 
-we gonna do smthn 
+Paws or Pause?
